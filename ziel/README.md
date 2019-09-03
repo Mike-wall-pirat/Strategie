@@ -21,7 +21,7 @@ Auf Landesebene hat die Piratenpartei Wahlen in
 
 vor sich.
 
-Die Hauptverantwortung für den Wahlkampf liegt bei den Vorständen der Gliederungen. Gleichzeitig steht der Bundesverband parat, um auch gliederungsübergreifend zu helfen und Ressourcen zu mobilisieren. Die Aufgabe, das zu mobilisieren und koordinieren liegt zu nächst beim entsprechenden Gliederungsvorstand.
+Die Hauptverantwortung für den Wahlkampf liegt bei den Vorständen der Gliederungen. Gleichzeitig steht der Bundesverband parat, um auch Gliederungsübergreifend zu helfen und Ressourcen zu mobilisieren. Die Aufgabe, das zu mobilisieren und koordinieren liegt zu nächst beim entsprechenden Gliederungsvorstand.
 
 Jedes Bundesland ist in sich besonders, was die politischen Rahmenbedingungen aber vor allem auch die insbesondere personelle Ausstattung angeht. In den adäquat “versorgten” Bundesländern sollte sich aber ein positiver Trend ausdrücken, trotz der Einschränkungen wie einer 5%-Hürde.
 
